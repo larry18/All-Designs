@@ -1,4 +1,4 @@
 # Designing
-My creativity towards Businesses. Old Portfolio but GOLD!!!!!
+My creativity for Businesses. Old Portfolio but GOLD!!!!!
 
 
